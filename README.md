@@ -2,4 +2,4 @@
 
 🚀 Futuro programador 
 
-💎 Atualmente focado nos estudos
+
